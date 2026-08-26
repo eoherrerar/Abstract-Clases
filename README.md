@@ -1,1 +1,1 @@
-Edwin Herrera
+Edwin Herrera, Yhirlan Suta y Edwin Herrera 
